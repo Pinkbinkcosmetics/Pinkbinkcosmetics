@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pinkbinkcosmetics
-👋 Hi, I’m @giadungecolux
+👋 Hi, I’m @Pinkbinkcosmetics
 👀 I’m interested in Ha Noi
 🌍 My website: https://pinkbinkcosmetics.com/
 
